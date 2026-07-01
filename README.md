@@ -1,2 +1,11 @@
 # StuBenefits
 We're Cooked
+HELL
+DIE
+WE 
+DARN
+COOKED
+WE
+DOMMED
+IM
+DONE
